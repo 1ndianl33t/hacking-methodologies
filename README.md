@@ -1,1 +1,1 @@
-https://raw.githubusercontent.com/imran-parray/hacking-methodologies/master/imran.php
+https://www.djjubeemedia.appboxes.co/Apks/Appstore%3A/Yalp%20v0.46%5BPremium%5D.apk
